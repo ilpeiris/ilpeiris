@@ -9,7 +9,7 @@
 ╚═╝╚══════╝╚═╝     ╚══════╝╚═╝╚═╝  ╚═╝╚═╝╚══════╝
 ```
 
-### `> S Y S T E M S   A R C H I T E C T   |   V I S I O N A R Y   |   F O U N D E R`
+### `> S Y S T E M S   A R C H I T E C T   |   V I S I O N A R Y `
 
 </div>
 
